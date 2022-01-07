@@ -30,4 +30,10 @@ Ce coup vient d'un expert à la guerre
 Vaillant praticien des arts martiens  
 Délégué pour mettre un terme à ces horreurs
 Tel est mon labeur, tu sais de qui je défends l'honneur
+<<<<<<< HEAD
 >>>>>>> 926e3583a7b4b5d059a04f4e5952145112cbef55
+=======
+
+L'École du micro d'argent  
+L'École du micro d'argent
+>>>>>>> a08c41a3012d76f2791b3bbf345ccfa081496432
