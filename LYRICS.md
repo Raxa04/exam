@@ -8,6 +8,8 @@ L'École du micro d'argent
 L'École du micro d'argent  
 L'École du micro d'argent  
 L'École du micro d'argent
+L'École du micro d'argent  
+
 
 Shurik'n  
 Assis en tailleur, voilà des heures que je médite
@@ -34,9 +36,16 @@ Mes griffes gravent les couleurs de l'Empire
 Plus grand que celui d'Alexandre dont je suis le défenseur  
 
 L'École du micro d'argent
+L'École du micro d'argent 
+Je représente 
 L'École du micro d'argent  
 L'École du micro d'argent  
-L'École du micro d'argent  
+Je représente  
+L'École du micro d'argent
+L'École du micro d'argent
+Je représente
+L'École du micro d'argent
+L'École du micro d'argent
 
 Akhenaton
 
@@ -56,4 +65,17 @@ Et lance l'assaut là, sur l'école du micro en bois La bataille a débuté, tie
 Ce coup vient d'un expert à la guerre  
 Vaillant praticien des arts martiens  
 Délégué pour mettre un terme à ces horreurs
-Tel est mon labeur, tu sais de qui je défends l'honneur
+Tel est mon labeur, tu sais de qui je défends l'honneur  
+
+L'École du micro d'argent
+L'École du micro d'argent
+Je représente
+L'École du micro d'argent
+L'École du micro d'argent
+Je représente
+L'École du micro d'argent
+L'École du micro d'argent
+Je représente
+L'École du micro d'argent
+L'École du micro d'argent
+
